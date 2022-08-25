@@ -6,5 +6,5 @@
 - 👯 I’m looking to collaborate on various fun projects of course!
 - 💬 Ask me about chess, travelling and snowboarding :)
 - 📫 How to reach me: stanislavdubuk@gmail.com
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I've been to more than 10 countries :)
 
